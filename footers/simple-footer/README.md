@@ -1,0 +1,1 @@
+GitHub próba online-asztali verzió
